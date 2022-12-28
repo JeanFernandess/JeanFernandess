@@ -1,5 +1,6 @@
 Me chamo Jean..🙋🙋
-Estou cursando ADS..🧐🧐
-Pb>>>RJ atualmente..✈️✈️
-Futuro Desenvolvedor..🖥️⌨️🖥️
+Concluí a graduação em Análise e Desenvolvimento de Sistema..🧐🧐
+Moro em RJ(Jacarepaguá)atualmente..✈️✈️
+Aspirante a Desenvolvedor de software..🖥️⌨️🖥️
+
 
